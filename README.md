@@ -1,4 +1,4 @@
-- 👋 Hi, I’m 
+- 👋 Hi, I’m that dude that knows where you live
 - 👀 I’m interested in Friday Night Funkin'
 - 🌱 I’m currently learning how to make music!
 - 📫 How to reach me: Discord That guy in your walls#0769.
